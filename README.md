@@ -1,3 +1,3 @@
 # my_first_github
 
-<https://www.youtube.com/channel/UCcYkqQNlfvEGCRpofdmVqSg/live?fbclid=IwAR1UU0uJUPrJ1srddAJ8w9d0lXn54BbCyJLoAYphbdY-eloOG5j-uKAJpjU>
+<https://www.youtube.com/watch?v=0-ex6fYefWE&t=926s>
